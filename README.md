@@ -23,5 +23,5 @@ My internship experience at CODTECH IT Solutions was enriching and challenging. 
 
 #OUTPUT
 
-![Image](https://github.com/user-attachments/assets/92e2a9cc-79c0-4c6d-b37a-ffa0c1d3cdb3)
+![Image](https://github.com/user-attachments/assets/c6d4a732-e729-46f7-a210-f04ad9336fcc)
 
